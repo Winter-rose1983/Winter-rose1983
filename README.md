@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Winter-rose1983
+- 👀 I’m interested in swimming reading music and cooking 
+- 🌱 I’m curuni of witch Craft
+- 💞️ I’m loo31.03.1983
+- 📫 How to reach me  @minniemands  (ticktock)
+- 😄 Pronouns:she/her
+- ⚡ Fun fact:if yo need to get rid of a boby feed it to the pigs 🐖 
+--->
