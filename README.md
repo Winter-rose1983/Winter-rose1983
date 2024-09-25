@@ -4,5 +4,5 @@
 - 💞️
 - 📫 How to reach me  @minniemands  (ticktock)
 - 😄 Pronouns:she/her
-- ⚡ Fun fact: If you need to get rid of a boby feed it to the pigs 🐖 
+- ⚡ Fun fact: If you need to get rid of a body feed it to the pigs 🐖 
 --->
